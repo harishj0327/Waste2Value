@@ -117,4 +117,3 @@ To create a **digital platform** where waste is not just “thrown away” but i
 
 ---
 
-✅ now **convert this complete overview into a well-structured PPT outline** (slide by slide) so that your hackathon presentation also looks professional?
